@@ -1,2 +1,0 @@
-# free diamond freefire
- 
